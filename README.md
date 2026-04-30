@@ -42,4 +42,4 @@ remaining mixture and decorating with sections of orange and perfect dates.
 Allen, Ida Bailey. *Woman's World Calendar Cook Book*. Chicago: Woman's World Magazine Co., 1922. 
 [https://catalog.hathitrust.org/Record/100770279](https://catalog.hathitrust.org/Record/100770279)
 
-https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25
+This Recipe comes from the [Womens World Calendar Cookbook](https://babel.hathitrust.org/cgi/pt?id=coo1.ark:/13960/t3805nx1f&seq=25)
