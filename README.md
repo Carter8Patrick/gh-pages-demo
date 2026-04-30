@@ -1,6 +1,3 @@
-# gh-pages-demo
-CN LIB350M April 30, 2026
-
 # Ida Bailey Allen's Orange and Date Cake
 ## Orange and Date Cake
 
